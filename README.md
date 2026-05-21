@@ -32,11 +32,11 @@
 
 # *Social Media Accounts*
 
-[TIKTOK ACCOUNT](https://www.tiktok.com/@capy_bara_17?_r=1&_t=ZS-96XTwTlCctx)
+-[TIKTOK ACCOUNT](https://www.tiktok.com/@capy_bara_17?_r=1&_t=ZS-96XTwTlCctx)
 
-[FACEBOOK ACCOUNT](https://www.facebook.com/share/1E5dS5xrvA/)
+-[FACEBOOK ACCOUNT](https://www.facebook.com/share/1E5dS5xrvA/)
 
-[INSTAGRAM ACCOUNT](https://www.instagram.com/jean_kensei?igsh=bTZod2szOGk1anN6)
+-[INSTAGRAM ACCOUNT](https://www.instagram.com/jean_kensei?igsh=bTZod2szOGk1anN6)
 
 
 
