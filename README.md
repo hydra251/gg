@@ -8,3 +8,10 @@
 * improve ai
 
 [car](https://www.pinterest.com/pin/54324739251564735/)
+
+
+<details>
+*hi
+*low
+*bang
+<details>
