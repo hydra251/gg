@@ -5,7 +5,7 @@
 
 *I enjoy playing MOBA games because they challenge my strategy and teamwork skills. I also love singing when I’m alone since it helps me relax and express myself. Nature and animals make me feel calm and happy, and I enjoy spending time appreciating them. I’m also curious about how other people see me because I value understanding different perspectives and learning more about myself.
 
-## *MY skills & hubbies*
+## *MY skills & hobbies*
 
 <details>
 
