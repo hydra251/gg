@@ -30,7 +30,7 @@
 * I like to listen to music
 
 
-# *Social Media Accounts
+# *Social Media Accounts*
 
 [TIKTOK ACCOUNT] (https://www.tiktok.com/@capy_bara_17?_r=1&_t=ZS-96XTwTlCctx)
 
