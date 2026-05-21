@@ -1,2 +1,2 @@
-# my portfolio
-## my skills
+# *MY PORTFOLIO*
+## *MY ACHIVEMENTS*
