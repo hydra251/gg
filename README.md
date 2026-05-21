@@ -1,2 +1,4 @@
 # *MY PORTFOLIO*
-## *MY ACHIVEMENTS*
+# *Jeax M. Clemenia*
+## *MY skills & achivements*
+
